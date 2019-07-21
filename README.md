@@ -1,3 +1,3 @@
 # Technik
 
-Description coming soon!
+Coming soon!
